@@ -1,3 +1,4 @@
-we are open for recruitment
-submit your CV to thr manager
-thr interview shall be conducted
+We are open for recruitment
+Submit your CV to the manager
+The interview shall be conducted
+Come prepared to write exams
